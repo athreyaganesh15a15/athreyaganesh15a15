@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @athreyaganesh15a15, call me Athreya
 - 👀 I’m interested in Music, TV Shows, and Gaming
-- 🌱 I’m currently learning my bachelor's in AI and Data Analytics from the Indian Institute of Technology, Madras
+- 🌱 I’m currently learning my Bachelor's in AI and Data Analytics from the Indian Institute of Technology, Madras
 - 💞️ I’m looking to collaborate on my projects
 - 📫 How to reach me: athreyaganesh15a15@gmail.com
 - 😄 Pronouns: he/him
