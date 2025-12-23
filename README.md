@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my projects
 - 📫 How to reach me: athreyaganesh15a15@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am a pretty good pianist, very bad at Valorant, and I sleep more during the day than at night 💀
+- ⚡ Fun fact: I am a pretty good pianist
 
 <!---
 athreyaganesh15a15/athreyaganesh15a15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
